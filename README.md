@@ -1,0 +1,2 @@
+# DedeosDaniel
+DDOS SAMP 
